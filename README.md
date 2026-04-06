@@ -1,5 +1,5 @@
 <p align="center"> hi, you can call me cryo
-<div align="center"> [strawpage](https://cryonoma.straw.page) : [carrd](https://cryonoma.carrd.co/)
+<div align="center"> [strawpage](https://cryonoma.straw.page) [carrd](https://cryonoma.carrd.co/)
 <p align="center"> cuddle freely anytime. i'll probably be quiet, but feel free anyway.
 <p align="center"> — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — 
 <p align="center"> BYI (also on carrd/strawpage):
