@@ -9,5 +9,5 @@
 <p align="center"> - I'm dense. I'll argue abt stuff when I proabbly shouldn't and I'll completely miss most jokes. I take everything seriously. Tone tags are not required but are appreciated if you're being unserious.
 <p align="center"> - I moderately kin X-Men '97 Magneto. I don't mind doubles, as the kin is light.
 <p align="center"> — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — 
-ok thank you for reading, if ur not bothered by my long byi then please do come and sit I'm usually alone
+<p align="center"> ok thank you for reading, if ur not bothered by my long byi then please do come and sit I'm usually alone
 <img width="1000" height="600" alt="image" src="https://github.com/user-attachments/assets/91d05d46-d778-4ecc-a566-54036ea075ec" />
