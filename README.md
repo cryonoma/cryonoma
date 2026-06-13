@@ -4,9 +4,9 @@
 <p align="center"> — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — 
 <p align="center"> BYI (also on carrd/strawpage):
 <p align="center"> - I get scared off pretty easily if approached. Sometimes I'll just log off or block ppl when approached. I get nervous I'm sorry.
-<p align="center"> - I don't ship anything. I don't hate ships either, but talking about ships especially of my favorite characters can be a little uncomfortable for me. I just don't like them a lot but if u ship I'm not gonna hate or attack you for it.
+<p align="center"> - I don't ship anything. I don't really enjoy talking about ships, as it can often give me the ick. just beware. i'm not "antiship," i dont care what other people do.
 <p align="center"> - I'm not very talkative. Maybe if you get to know me I'll chat more. But usually I'm really quiet or I can come off as rude or dry. I don't intend to be hostile but if you're sensitive to that, I have no control over it.
-<p align="center"> - I'm dense. I'll argue abt stuff when I proabbly shouldn't and I'll completely miss most jokes. I take everything seriously. Tone tags are not required but are appreciated if you're being unserious.
+<p align="center"> - I'm dense. I'll argue abt stuff when I probably shouldn't and I'll completely miss most jokes. I take everything seriously. Tone tags are not required but are appreciated if you're being unserious.
 <p align="center"> — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — — 
 <p align="center"> ok thank you for reading, if ur not bothered by my long byi then please do come and sit I'm usually alone
 <img width="1000" height="600" alt="image" src="https://github.com/user-attachments/assets/91d05d46-d778-4ecc-a566-54036ea075ec" />
